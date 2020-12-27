@@ -1,2 +1,2 @@
-# FARMHEMP domain welcomes you!
+# FARMHEMP/ | a Handshake TLD
 
